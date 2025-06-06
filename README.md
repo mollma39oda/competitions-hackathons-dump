@@ -1,0 +1,1 @@
+# competitions-hackathons-dump
